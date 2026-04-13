@@ -1,2 +1,5 @@
 # indra00
-repository untuk menyimpan rencana WPU kedepanya
+WPU RESOLUSI
+-Bangun kebiasaan bangun pagi
+-Perbanyak relasi dan pertemanan
+-Lebih percaya diri dalam berbicara di depan orang
