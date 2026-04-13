@@ -1,4 +1,5 @@
 # indra00
+
 WPU RESOLUSI
 -Bangun kebiasaan bangun pagi
 -Perbanyak relasi dan pertemanan
